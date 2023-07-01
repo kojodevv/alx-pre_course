@@ -1,1 +1,1 @@
-My first readme
+My name is obodai mark. son of mr obodai
